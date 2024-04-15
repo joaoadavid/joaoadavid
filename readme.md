@@ -4,9 +4,6 @@
 👩‍🦱 I’m Sofware Engineering Student.
  
 
-🤘 I’m currently working at Neogrid Software!
-
-
 <br/>
 
 You can find me here too 👇
